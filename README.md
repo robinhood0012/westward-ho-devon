@@ -7,6 +7,7 @@ Nestled along the rugged coastline of North Devon, Westward Ho beckons with its 
 **Sandy Beaches and Surfing Haven**
 
 Westward Ho boasts one of the longest sandy beaches in _[westward ho devon]([url](https://www.exclusivetravel.co/destinations/britain-holidays/devon/westward-ho-devon.html))_, offering miles of golden sands and rolling waves that beckon surfers, swimmers, and sunbathers alike. The beach is renowned for its excellent surf conditions, making it a popular spot for surfing, bodyboarding, and kite surfing enthusiasts seeking thrills on the waves. Families can enjoy building sandcastles, picnicking on the shore, and exploring rock pools at low tide, while beachgoers can bask in the sunshine and soak up the coastal ambiance.
+![image](https://github.com/robinhood0012/westward-ho-devon/assets/162023332/c078879f-271f-455c-b9fb-18daf739afe8)
 
 **Coastal Walks and Scenic Trails**
 
